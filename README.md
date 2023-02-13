@@ -6,11 +6,11 @@ Görseller #yavas yavas yuklicem ssleri starlayın
 <img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785060751941692/Ekran_goruntusu_2023-02-13_224514.png">
 <img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785060978430093/Ekran_goruntusu_2023-02-13_224539.png">
 <img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785061246873682/Ekran_goruntusu_2023-02-13_224603.png">
-# YAKINDA ! 
-# YAKINDA !
-# YAKINDA ! 
-# YAKINDA ! 
-# YAKINDA ! 
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785647035961354/image.png">,
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785713092046979/image.png">
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785935704739971/image.png">
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785969355636807/image.png">
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074786001697906789/image.png">
 # YAKINDA ! 
 # YAKINDA !
 # YAKINDA ! 
