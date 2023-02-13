@@ -11,8 +11,8 @@ Görseller #yavas yavas yuklicem ssleri starlayın
 <img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785935704739971/image.png">
 <img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074785969355636807/image.png">
 <img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074786001697906789/image.png">
-# YAKINDA ! 
-# YAKINDA !
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074786714255626300/image.png">
+<img  src="https://cdn.discordapp.com/attachments/1073213181272539136/1074786813283143750/image.png">
 # YAKINDA ! 
 # YAKINDA ! 
 # YAKINDA ! 
